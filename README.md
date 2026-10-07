@@ -1,0 +1,1 @@
+# Amanda-3-trimestre-gerador-senha
